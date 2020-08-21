@@ -1,2 +1,3 @@
-# Computing-work
-Just random things
+Welcome!
+I am bored 
+I am just random student
